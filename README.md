@@ -1,0 +1,5 @@
+- 👋 Hi, I’m RAKSHNA
+- 👀 I’m exploring the fields
+- 🌱 I’m currently learning C, Java and Python
+- 📫 How to reach me: LinkedIn - Rakshna Priya
+- I am a beginner, here to work on my skills.
